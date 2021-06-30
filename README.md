@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MaQu03
-- 👀 I’m interested in gym, basketball, IT...
+- 👀 I’m interested in 🏀 💪 💻
 - 🌱 I’m currently learning programms
 - 💞️ I’m looking to collaborate with big corporations
 - 📫 How to reach me maciekdolhun82@gmail.com
